@@ -35,5 +35,5 @@ Open to cross-linguistic exchange and international collaborative projects
 
 ## Contact Details
 
-Email : arnaud@grikke.fr
+Email : arnaud@scritracius.fr
 Phone : 06 95 43 87 71
